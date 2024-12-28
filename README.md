@@ -73,20 +73,28 @@ With 24/7 service availability, we ensure your devices are repaired quickly and 
 ## 🌍 Location  
 
 **📍 Address:**  
-76J7+3P4 Al Khobar Dammam حي, Saudi Arabia 34429, Al Khobar Al Shamalia, Eastern Province  
+76J7+3J9 Al Khobar EKDA3210, 3210 Khadim Al Haramain Al Sharifain Road, Al Khobar 34429, Saudi Arabia
 
 **📞 Contact:**  
 054 032 7405  
 
 ---
 
-## 📱 Social Media  
-Stay connected for updates and promotions:  
-- [Instagram](https://www.instagram.com/mobile.repair.khobor)  
-- [Facebook](https://www.facebook.com/mobile.repair.khobor)  
-- [TikTok](https://www.tiktok.com/@starsmobilerepairak)  
-- [Pinterest](https://www.pinterest.com/star_mobiler_epair_al_khobar/)  
-- [YouTube](https://www.youtube.com)  
+=== Social Media ===
+
+Star ⭐️ Mobile Repair - Al Khobar maintains an active presence on several social media platforms:
+* [LinkedIn](https://linkedin.com/in/star-mobile-repair-al-khobar)
+* [Instagram](https://instagram.com/star_mobile_repair)
+* [X (formerly Twitter)](https://x.com/Starmobilerepar)
+* [Facebook](https://facebook.com/mobile.repair.khobor)
+* [YouTube](https://youtube.com/@star-mobile-repair-al-khobar)
+* [Pinterest](https://pinterest.com/star_mobiler_epair_al_khobar/)
+* [Medium](https://medium.com/@vapesellingkhobar/list/star-mobile-repair-al-khobar-9708f5d2e761)
+* [TikTok](https://tiktok.com/@starsmobilerepairak)
+* [Weebly](https://star-mobile-repair.weeblysite.com/)
+* [Quora](https://starmobilerepair.quora.com/)
+* [Blogspot](https://starmobilerepai.blogspot.com/)
+* [Yandex Maps](https://yandex.com/maps/org/star_mobile_repair_al_khobar/)  
 
 ---
 
