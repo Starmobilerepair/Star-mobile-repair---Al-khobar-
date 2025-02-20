@@ -19,7 +19,7 @@ Our mission is to deliver high-quality repair services with exceptional customer
   الخبر, 34429, Saudi Arabia
 - **Phone:** 054 032 7405
 - **Website:** [Star Mobile Repair - Al Khobar](https://star-mobile-repair.weeblysite.com/)
-- **Store ID:** Google_12608963077484012602
+- **Store ID:** 
 
 ## Social Media
 
